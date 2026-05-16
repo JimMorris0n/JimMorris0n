@@ -15,7 +15,7 @@
   </tr>
 </table>
 
-my boundaries are just to refrain from flirting and 18+ & -13 please don't int, thank you.
+please refrain from flirting and 18+ & -13 please don't int, thank you.
 
 <br>
 
